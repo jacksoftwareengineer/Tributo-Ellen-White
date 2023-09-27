@@ -1,2 +1,2 @@
 # Tributo-Ellen-White
- Página de Tibutp a Ellen G. White
+ Página de Tributo a Ellen G. White
